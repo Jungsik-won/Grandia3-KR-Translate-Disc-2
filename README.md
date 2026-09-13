@@ -1,0 +1,1 @@
+# Grandia3-KR-Translate-Disc-2
